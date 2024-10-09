@@ -7,7 +7,7 @@ adentraron en Hispania. Este hecho coincide con el declive del Imperio romano. S
 estableció un tratado en el cual se disponía que los visigodos se asentaran en el sur de
 la Galia y controlaran algunos territorios en Hispania.
 
-##Indice
+## Indice
 1. Época
 2. Arquitectura
 3. Obras más significativas
